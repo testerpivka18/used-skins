@@ -12,10 +12,10 @@
 
 ![](https://databaseosu.s-ul.eu/dN1AhHwQ)
 
-## [4. tranquil gasha edit](https://drive.google.com/file/d/11Ca5DTFg26GCykKmazBuvyyRwNIeuuTt/view?usp=drive_link)
+## [4. tranquil cookiezi edit](https://drive.google.com/file/d/1rXDQnPsUYYdlMrMduk6kPDWpl5pTepGO/view?usp=drive_link)
 
-![](https://databaseosu.s-ul.eu/nDrz2j4K)
+![](https://databaseosu.s-ul.eu/O02YqjDZ)
 
-## [5. tranquil gasha edit](https://drive.google.com/file/d/11Ca5DTFg26GCykKmazBuvyyRwNIeuuTt/view?usp=drive_link)
+## [5. tranquil erik edit](https://drive.google.com/file/d/1lilLkGEOT9Od2WnXD9PtpkS6pmy66gdn/view?usp=drive_link)
 
-![](https://databaseosu.s-ul.eu/nDrz2j4K)
+![](https://databaseosu.s-ul.eu/WqEwmh5s)
