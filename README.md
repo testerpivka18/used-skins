@@ -4,7 +4,7 @@
 
 ![](https://databaseosu.s-ul.eu/nDrz2j4K)
 
-## [2. tranquil aristekk edit](https://drive.google.com/file/d/11Ca5DTFg26GCykKmazBuvyyRwNIeuuTt/view?usp=drive_link)
+## [2. tranquil aristekk edit](https://drive.google.com/file/d/19s9kICdStX4huP-Voudt6cjquLOAW_hr/view?usp=drive_link)
 
 ![](https://databaseosu.s-ul.eu/bULSIji4)
 
